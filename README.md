@@ -1,7 +1,7 @@
 <h2>苦瓜书盘官网，免费电子书下载平台</h2>
 <p>苦瓜书盘是一款专注于提供丰富电子书资源的平台，致力于为用户提供便捷、高质量的数字阅读体验。用户可以通过该网站免费下载各类电子书，包括小说、文学、历史、科技、艺术等多个领域的书籍资源。网站界面简洁，分类清晰，支持多种格式（如PDF、EPUB、MOBI等），并提供强大的搜索功能，使用户能够快速找到所需内容。</p>
 <p><strong>一键访问：</strong><a href="https://www.ggonav.com/sites/3064.html " target="_blank"><strong>苦瓜书盘最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>网站介绍：</strong><br>苦瓜书盘成立于2008年，是一个以用户共享为主的电子书下载与分享平台。其主要特色在于提供适合电纸书阅读的6寸PDF和Mobi格式电子书资源，同时允许用户上传和下载书籍。平台资源由网友收集整理，涵盖现代文学、古典文学、网络小说、言情小说、历史地理、人文社科等多个类别，满足不同用户的阅读需求。</p>
 <p><strong>功能特点：</strong></p>
